@@ -1,0 +1,1 @@
+Numbrimängu hakkame tegema 
